@@ -5,3 +5,5 @@
 "Still, a prince should make himself feared in such a way that, even if he gets
 no love, he gets no hate either; because it is perfectly possible to be feared and
 not hated" - Niccolo Machiavelli
+
+“What do you despise? By this are you truly known.” - Frank Herbert, Dune
