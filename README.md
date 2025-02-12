@@ -7,3 +7,5 @@ no love, he gets no hate either; because it is perfectly possible to be feared a
 not hated" - Niccolo Machiavelli
 
 “What do you despise? By this are you truly known.” - Frank Herbert, Dune
+
+ "When a measure becomes a target, it ceases to be a good measure" - Goodhart's law by Charles Goodhart
