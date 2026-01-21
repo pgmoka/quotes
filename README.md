@@ -1,3 +1,7 @@
+"There are cathedrals all around for those with eyes to see" - Unknown
+
+“The kind of knowledge required in such [engineering] endeavors is not deductive knowledge from first principles but rather what Greeks of the classical period called métis, a concept to which we shall return. Usually translated, inadequately, as “cunning,” métis is better understood as the kind of knowledge that can be acquired only by long practice at similar but rarely identical tasks, which requires constant adaptation to changing circumstances.” ― James C. Scott, Seeing Like a State
+
 “A fool who persists in his folly will become wise” - William Blake
 
 “Give me six hours to chop down a tree and I will spend the first four sharpening the axe.” - Lincoln
