@@ -1,3 +1,11 @@
+"[...] I've just got you luggin' heavy rocks around all day \ [...] (but) This is not just a pile of stones \ [...] We are buildin' a castle together" - Good Morning Sunshine by The Narcissist Cookbook
+
+"The dry backcountry will turn into the sea, in the heart of the land \ My fear is that one day the sea will turn into the dry backcountry" - Sobradinho by Sa e Guarabyra
+
+"The road to healing is going to be a long one. Stay the course, you will make it. Someday."- Disco Elysium, Volition
+
+"Dress me slowly, I'm in a hurry" - Popular saying
+
 “Nothing strengthens authority so much as silence” - Leonardo da Vinci
 
 “Those who make peaceful revolution impossible will make violent revolution inevitable" ― John F. Kennedy
