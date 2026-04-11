@@ -1,3 +1,5 @@
+"Extinction is the rule. Survival is the exception" - Carl Sagan
+
 "[...] I've just got you luggin' heavy rocks around all day \ [...] (but) This is not just a pile of stones \ [...] We are buildin' a castle together" - Good Morning Sunshine by The Narcissist Cookbook
 
 "The dry backcountry will turn into the sea, in the heart of the land \ My fear is that one day the sea will turn into the dry backcountry" - Sobradinho by Sa e Guarabyra
