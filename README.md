@@ -1,3 +1,5 @@
+“Well, I must endure the presence of a few caterpillars if I wish to become acquainted with the butterflies.” - Antoine de Saint-Exupéry, The Little Prince
+
 "Extinction is the rule. Survival is the exception" - Carl Sagan
 
 "[...] I've just got you luggin' heavy rocks around all day \ [...] (but) This is not just a pile of stones \ [...] We are buildin' a castle together" - Good Morning Sunshine by The Narcissist Cookbook
