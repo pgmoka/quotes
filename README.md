@@ -1,3 +1,5 @@
+"It is hard to appreciate that when someone is stomping you face they might be showing you their achilles heel" - Unrully by David Mitchel
+
 "The report of my death was an exaggeration" - Mark Twain
 
 “Well, I must endure the presence of a few caterpillars if I wish to become acquainted with the butterflies.” - Antoine de Saint-Exupéry, The Little Prince
