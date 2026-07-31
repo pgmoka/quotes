@@ -1,3 +1,5 @@
+“All major changes are like death. You can't see to the other side until you are there.” - Ian Malcom in Jurassic Park by Michael Crichton
+
 "It is hard to appreciate that when someone is stomping you face they might be showing you their achilles heel" - Unrully by David Mitchel
 
 "The report of my death was an exaggeration" - Mark Twain
