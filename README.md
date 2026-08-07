@@ -1,3 +1,9 @@
+"Radical surgery failed in both cases. For patients that survived, a local surgery would have been enough. For cases that metastasize, it did nothing" ―  The Emperor of All Maladies: A Biography of Cancer by Siddhartha Mukherjee
+
+“Cancer is an expansionist disease; it invades through tissues, sets up colonies in hostile landscapes, seeking “sanctuary” in one organ and then immigrating to another. It lives desperately, inventively, fiercely, territorially, cannily, and defensively—at times, as if teaching us how to survive. To confront cancer is to encounter a parallel species, one perhaps more adapted to survival than even we are.” ―  The Emperor of All Maladies: A Biography of Cancer by Siddhartha Mukherjee
+
+"Our sacred sweat is far more beautiful than this bitter blood" - Tempo Perdido (lost time) By Legiao Urbana
+
 “All major changes are like death. You can't see to the other side until you are there.” - Ian Malcom in Jurassic Park by Michael Crichton
 
 "It is hard to appreciate that when someone is stomping you face they might be showing you their achilles heel" - Unrully by David Mitchel
@@ -42,4 +48,4 @@ not hated" - Niccolo Machiavelli
 
 “What do you despise? By this are you truly known.” - Frank Herbert, Dune
 
- "When a measure becomes a target, it ceases to be a good measure" - Goodhart's law by Charles Goodhart
+"When a measure becomes a target, it ceases to be a good measure" - Goodhart's law by Charles Goodhart
