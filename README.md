@@ -1,3 +1,5 @@
+"If you choose not to decide, you still have made a choice" - Freewill by Rush 
+
 "Radical surgery failed in both cases. For patients that survived, a local surgery would have been enough. For cases that metastasize, it did nothing" ―  The Emperor of All Maladies: A Biography of Cancer by Siddhartha Mukherjee
 
 “Cancer is an expansionist disease; it invades through tissues, sets up colonies in hostile landscapes, seeking “sanctuary” in one organ and then immigrating to another. It lives desperately, inventively, fiercely, territorially, cannily, and defensively—at times, as if teaching us how to survive. To confront cancer is to encounter a parallel species, one perhaps more adapted to survival than even we are.” ―  The Emperor of All Maladies: A Biography of Cancer by Siddhartha Mukherjee
