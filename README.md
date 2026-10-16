@@ -1,3 +1,5 @@
+"Everybody's got a rock" - Mindhunter by John Douglas and Mark Olshaker
+
 "If you choose not to decide, you still have made a choice" - Freewill by Rush 
 
 "Radical surgery failed in both cases. For patients that survived, a local surgery would have been enough. For cases that metastasize, it did nothing" ―  The Emperor of All Maladies: A Biography of Cancer by Siddhartha Mukherjee
